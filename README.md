@@ -1,1 +1,1 @@
-https://HiroRey.github.io/rsschool-cv/cv
+https://HiroRey.github.io/rsschool-cv/
